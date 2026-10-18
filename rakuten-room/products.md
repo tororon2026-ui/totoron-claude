@@ -62,7 +62,7 @@
 | 2 | Numbuzin 5番 トナーパッド（1番・3番・4番・5番から選択。ユーザーは5番） | https://item.rakuten.co.jp/charimeti/numbuzin_pad/ | ¥2,990 ✅ | **生産国 韓国製** ✅／**日本国内配送** ✅ | ★5(5件) 🔍（件数は少ない） | 10/12（セット⑧の入口） | 入口（パッド・オリジナル写真） |
 | 3 | Celladix 131 ポアクリアリングセラム 30ml | https://item.rakuten.co.jp/iroirotown/c131a-001/ | ¥3,300 ✅ | **製造国 韓国** ✅ | ★4.43(40件) 🔍 | 10/18ごろ | 入口（毛穴・肌荒れ） |
 | 4 | VT PDRN デイリーマスク（VT 大容量パック 2種セットのページ内の選択肢） | https://item.rakuten.co.jp/vtcosmetic-official/soothingmask_set_ss/ （ユーザーの商品ページと同じか要確認） | ¥3,795〜4,400 ✅ | **原産国 韓国** ✅ | 未確認 | 10/22ごろ | 関連（シートマスク） |
-| 予備 | Celladix トリプルレチノールPDRNトナー 200ml | https://item.rakuten.co.jp/iroirotown/ctrt-001/ | ¥2,800 ✅ | **製造国 韓国** ✅ | 未確認 | 来月以降／予備 | ハリ・乾燥 |
+| 予備 | Celladix トリプルレチノールPDRNトナー 200ml | https://item.rakuten.co.jp/iroirotown/ctrt-001/ | ¥2,800 ✅ | **製造国 韓国** ✅ | 文は作成済み（post-drafts.md。感想：1か月・ほぼ毎晩・4〜5滴・潤う・たっぷり。2026-10-18） | 来月以降／予備 | ハリ・乾燥 |
 | 予備 | Celladix トリプルレチノール ウォッシュピール 30ml | https://item.rakuten.co.jp/iroirotown/ctrawp-001/ | ¥3,850 ✅ | **製造国 韓国** ✅ | ★3.79(33件) 🔍（評価は低め） | 予備（正直な感想で） | 角質・毛穴 |
 
 - Celladixの3商品とVTは、韓国から直送の個人輸入扱い（✅商品ページ）
