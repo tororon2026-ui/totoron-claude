@@ -207,3 +207,8 @@
 - 見送り：Beauty Farm系（CipiCipi・upink・GENTY等・日本ブランドの可能性）、馬油、ヘアケア、ボディオイル、ONE BY KOSE、スピケア（日本ブランドの可能性）、LANEIGEのタイトルの期間限定表記（書かない）
 - 次：ハンドクリームを「ザセム ハンドクリーム」「パフューム ハンドクリーム 韓国」「ハンドクリーム 3本セット 韓国」で再検索（10/18の検索にあった候補：thesaemcosmetic/c000003-set・xation/jpb40000120bk JULYME・moton-store/handcream・hanbist/typenoset-1・koreabrandshop/arj001 ARJUEL・miraclim McNally）
 - 11/1（日）のプラン案：①rom&nd メルティングバーム（職場へのプチギフト）②LANEIGE リップスリーピングマスク 2個セット（友だち・家族へ）。確認待ち：生産国・箱ラッピング・届く日数・重複・販売期間・選択画面
+
+## 11月のギフト：ハンドクリーム（2026-11-01 ✅ユーザーがコピー：アフィリエイト「ハンドクリーム ギフト」料率15%で検索 1ページ目。20%の商品は日本のブランド中心だった）
+- 韓国のブランドと考えられる候補（生産国は全て未確認）：THE SAEM ハンドクリーム お花ギフト 翌日配送（bloomeestore/thesaem-1・¥2,490〜 送料無料・**20%**）／THE SAEM ハンドクリーム タオルハンカチ ギフトセット（ange-selectshop1/perfumedhand-set ¥1,880・perfumedhand-hummingset ¥1,780・送料無料・15%・タイトルの「ホワイトデー」は書かない）／Huxley ハンドクリーム 男女兼用（koma/huxley_handcream・¥1,820 送料無料・15%）／THE SAEM パフュームドハンド 15種ミニ（ange-selectshop1/perfumedhand・¥696 送料別・15%）／JMソリューション ディズニープリンセス ハンドクリーム（healthbeauty-lab/jm_hc・¥880 送料別・15%）／Abib ハンドクリーム 50ml S・N・G（abibofficial/hand_cream・¥2,250〜 送料無料・15%・韓国から海外発送2〜3週間＝クリスマスには間に合わない可能性。10/19の1+1セット（hand_cream_set）とは別ページ）
+- 見送り：サンエイサン・シャルラ・TELESA・コジット・馬油・LUBEE・ニュートロジーナ・MAI OHW MAI（日本のブランド）、スピケア・モムチ（国不明）、薬用モアディープ（国不明）
+- 11/2（月）のプラン案：①THE SAEM ハンドクリーム タオルハンカチ ギフトセット（職場・友だちへのプチギフト）②THE SAEM お花ギフト 翌日配送（誕生日・お祝い・20%）。同ブランドが続くため、②をHuxleyに替える案も。確認待ち：生産国・ハンカチの中身・箱ラッピング・届く日数・重複・販売期間
