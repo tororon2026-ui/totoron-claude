@@ -2485,3 +2485,17 @@ McNally(マクナリー)のハンドクリーム。10種の香りから、3個�
 
 #McNally #ハンドクリーム #ミニハンドクリーム #プチギフト #友だちギフト #韓国コスメ #楽天ROOM
 ```
+
+## 【11/12 ① 差し替え】THE SAEM PERFUMED HAND CREAM 選べる4個（miraclim・PERFUMED-HAND-CREAM_4EA）
+- McNally（10種と書かれているが選べるのは3つ）は見送り。THE SAEMは選択画面に多数の香りが出る（✅）：#03 Soft Powder／#04 Red Plum／#05 Floral Musk／#06 Iris／#07 Baby Powder／#08 Lilac／#09 Peach Blossom／#10 Apricot／#11 Acacia／#12 Apple Blossom／#13 Frangipani／#15 Vanilla／#16 Cherry Blossom／#17 Magnolia／#18 Warm Cotton／#20 Lemon Mint ほか。¥1,660 送料無料・選択01〜04 必須（01は最初から D-#20 Lemon Mint が入っている）。書かない：ホワイトデー・保湿・効果・うるおい・ひびわれ・国内即日配送・おまけ付き・25種（数の確認ができるまで）
+```
+1,660円で送料無料、香りを選べるミニハンドクリーム4個🎁
+
+THE SAEM(ザセム)のパフュームド ハンドクリーム。たくさんの香りから、4個を選べるセットです。韓国のブランドです。
+ピーチブロッサムやレモンミント、ベビーパウダーなど、名前を見るだけで選びたくなります。
+
+あなたなら、フローラル系、フルーツ系、ミント系、どの香りを選びますか？
+コメントで教えてもらえたらうれしいです☺️
+
+#THESAEM #ザセム #ハンドクリーム #ミニハンドクリーム #プチギフト #友だちギフト #韓国コスメ #楽天ROOM
+```
